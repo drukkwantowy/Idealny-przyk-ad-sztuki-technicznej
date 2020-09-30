@@ -1,0 +1,1 @@
+# Idealny-przyk-ad-sztuki-technicznej
